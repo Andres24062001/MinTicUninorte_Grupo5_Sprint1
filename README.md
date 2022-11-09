@@ -1,0 +1,1 @@
+# MinTicUninorte_Grupo5_Sprint1
